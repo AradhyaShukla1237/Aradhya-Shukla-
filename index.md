@@ -12,5 +12,15 @@ I am Aradhya Shukla from Kannauj
 ![IMG_20211227_204423_368](https://user-images.githubusercontent.com/90599858/152738857-88200c79-56ad-4d27-8fba-1ce089064973.jpg)
 
 
-https://user-images.githubusercontent.com/90599858/152739014-33e67b41-1f49-4c16-a1eb-c7ced841a2e9.mp4
+![spider-man-movies-in-order-index-1631199371](https://user-images.githubusercontent.com/90599858/152743208-f40802ea-ccc5-4607-9527-aba021e9908b.jpeg)
 
+![h6s3yf](https://user-images.githubusercontent.com/90599858/152743388-fa331fdb-209a-41ee-8092-8ad8baa4e4a6.jpg)
+
+
+
+https://user-images.githubusercontent.com/90599858/152743579-21f16662-a793-4dd7-bf7f-900b848b7397.mp4
+
+I love you all bye bye. I will add more pages on that site! Okay bye bye 
+
+If you like that follow me on GitHub AradhyaShukla1237 
+and Give me star for that work.
